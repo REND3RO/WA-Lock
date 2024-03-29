@@ -16,4 +16,4 @@ Enter Your Number Without Country Code Like 1234567890
 
 If You Face Any Issue
 Contact Me On TG:- @ransomxrend3ro
-              IG:- @ransomxrend3rl
+              IG:- @ransomxrend3ro
